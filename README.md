@@ -8,7 +8,7 @@ compared with Amankwu in size. One may wonder how Arondizuogu grew so much in
 size. This is explained by the ingenuity of Mazi Izuogu - he established and 
 exploited the 'GREENCARD' scheme some centuries ago to a great success!
 He welcomed all manner of people who were either displaced from their ancestral lands, slaves escaping from their masters, valiant men in search of conquest etc.
-This provided him with a large population and consequently increased his economic and military power.
+This provided him with a large population and consequently increased his economic and military might.
 If Arondizuogu is made up of his direct descendants, it would have been a small
 community today.
 Being a conglomerate, there is a blend of culture.
@@ -20,3 +20,4 @@ Today Arondizuogu has 7 Autonomous communities:
 5. Ndiejezie
 6. Aro-Umuduru
 7. 
+Today, so many countries are using this strategy, some in a modified way.
